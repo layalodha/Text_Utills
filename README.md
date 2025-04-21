@@ -65,6 +65,6 @@ Contributions are welcome! Please follow these steps to contribute:
 
 ## Contact
 
-For any inquiries or feedback, please reach out to me at [ayushv7011@gmail.com].
+For any inquiries or feedback, please reach out to me at [layalodha@gmail.com].
 
 
